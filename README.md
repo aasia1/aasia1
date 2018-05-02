@@ -1,2 +1,0 @@
-# aasia1
-xzq
